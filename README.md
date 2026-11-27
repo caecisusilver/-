@@ -6,7 +6,7 @@
   <p align="center">$\color{#ff6d2e}{ㅤ♡ㅤ}$
 
 
-  <p align="center">hiya! :D I'm raye. this is a summary of myself and what I do here!
+  <p align="center">hiya! :D I'm raye. this is a summary of myself!
   <details>
 
  <summary> ㅤ ㅤ ㅤㅤ ㅤㅤ  $\color{#ff833b}{my ㅤ interests}$ ㅤㅤ</summary>
