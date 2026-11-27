@@ -15,8 +15,32 @@
  my main fandoms are: the living tombstone, get a snack series, deltarune and undertale, and vocal synthesizers! (vocaloid, synthv, cevio, voicevox, utau, etc)
  
  I like to write, read, play piano, and draw occasionally. 
- ㅤ
 
+ my favorite songs are:
+
+
+ - sunburn, the living tombstone
+   
+ - step on up, the living tombstone
+   
+ - under the sun, the living tombstone
+   
+ - long time friends, the living tombstone
+   
+ - cant wait, the living tombstone
+
+ - malibu pier, the living tombstone
+   
+ - under the sun, the living tombstone
+   
+ - be alone, the living tombstone
+   
+ - squid melody (blue), the living tombstone
+   
+ - just a like song, al bairre
+   
+ - midnight telephone, ponytailmama
+   
   </details>
 
 
@@ -34,7 +58,7 @@ my timezone is gmt + 7. I am currently based in vietnam. I use he/him pronouns, 
 
 dni (do not interact) if you are:
 
-   maga, right-winged, a transphobe, xenophobe, homophobe, a lolicon/shotacon, a zoophile, predator or pedophile, ableist, a proshipper/darkshipper (recovering OKAY), racist, a bigot, misogynistic, TERF, MAP (minor-attracted-person), anti-POC (person of color).  
+   maga, right-winged, a transphobe, xenophobe, homophobe, a lolicon/shotacon, a zoophile, predator or pedophile, ableist, a proshipper/darkshipper (recovering OKAY), racist, a bigot, misogynistic, TERF, MAP (minor-attracted-person), anti-POC (person of color). 
     </details>
     <details>
 
