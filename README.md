@@ -74,4 +74,6 @@ discord: yuexdesoleil
  pingpong/chat.owen.uno: raysins
 
  reddit: u/autumnebula
-    </details>
+    </details> </details>
+
+<p align="center">$\color{#e86113}{thx ㅤ4 ㅤreading!}$ 
