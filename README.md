@@ -2,7 +2,7 @@
    
 <p align="center">   $\color{#ff924a}{ㅤ:ㅤ}$ $\color{#a13400}{"ㅤ𝓈oㅤ}$ $\color{#ff924a}{ㅤ𝓊nderㅤ}$ $\color{#a13400}{theㅤ}$  $\color{#ff924a}{𝓈un,}$ $\color{#a13400}{ㅤ𝓌e'llㅤ}$ $\color{#ff924a}{𝓇unㅤ"}$
 
-<p align="center"><img src=https://i.postimg.cc/tTV5vH1D/Screenshot-2026-11-27-020202.png>
+<p align="center"><img src=https://i.postimg.cc/GtfbLG3t/imageedit-1-6973891831.png>
   <p align="center">$\color{#ff6d2e}{ㅤ♡ㅤ}$
 
 
